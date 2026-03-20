@@ -1,6 +1,4 @@
-# $${\color{orange}Hey, \space \color{yellow}Jim.}$$
-
-swamp / mick / jay
+swamp / mick / mark
 
 Not as active anymore but im still kickin 'round
 
