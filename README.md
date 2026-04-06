@@ -1,6 +1,6 @@
 swamp / mick <- main names you can call me by
 
-Not as active anymore but im still kickin 'round
+
 
 c+h friendly
 
