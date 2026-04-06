@@ -1,8 +1,10 @@
-swamp / mick <- main names you can call me by
+Swamp / Mick <- main names you can call me by
+
+c+h friendly im open to making new friends
 
 [sp ask & draw!!](https://sniperbullets.straw.page)
 
-c+h friendly
+
 
 
 [information](https://rentry.co/highprices) <- BEST VIEWED ON PC
